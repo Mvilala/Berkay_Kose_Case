@@ -1,1 +1,1 @@
-# Berkay_Kose_Case
+{\rtf1}
